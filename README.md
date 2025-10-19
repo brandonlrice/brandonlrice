@@ -25,4 +25,5 @@ By day, I’m diving into dashboards and solving business puzzles. By night (and
 
 I’m ready to bring my data brain and creative heart to a forward-thinking team where insights matter. If you're working on bold ideas powered by data—I’d love to be part of it.
 
+https://www.linkedin.com/in/brandonleorice/
 💻 https://github.com/brandonlrice
